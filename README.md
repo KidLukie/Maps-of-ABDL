@@ -30,7 +30,7 @@ Kindredly,
 5. [Neosexuality: The Dispersion of Sexual Fragments](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#neosexuality-the-dispersion-of-sexual-fragments)
 6. [Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#social-rebellion)
 7. [Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#transpersonal-ecopsychology-regressing-or-reconnecting)
-8. [Cradled in Paradox: A Metamodern Reflection on ABDL](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#cradled-in-paradox-a-metamodern-reflection-on-abdl-)
+8. [Cradled in Paradox: A Metamodern Reflection on ABDL](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#cradled-in-paradox-a-metamodern-reflection-on-abdl)
 9. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
 10. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
 
@@ -182,7 +182,7 @@ Viewed through transpersonal ecopsychology, ABDL might be less about individual 
 
 Rather than dismiss ABDL as a simple fetish or coping mechanism, transpersonal ecopsychology invites us to ask: *What is ABDL trying to restore?* If we listen carefully, we might find that it speaks not just to personal longing but to a deeper call to reclaim our place within the living world.
 
-# Cradled in Paradox: A Metamodern Reflection on ABDL. </br>
+# Cradled in Paradox: A Metamodern Reflection on ABDL </br>
 When one asks about ABDL, it's tempting to reach for easy answers—labels, definitions, and diagnostic terms. But when I engage with this topic, I find myself moving non-linearly, as though moving through a lattice of resonance—a multidimensional web of meanings, contradictions, and symbolic echoes.
 
 At the surface, the term "ABDL" activates a cluster of associated knowledge: fetish, regression, diapers, infantilism, sexuality, care, taboo. This first layer is dry (teehee), almost mechanical. But even here, contradictions flicker: is it erotic or emotional? Is it perverse, therapeutic, or both? The tension at this layer is quiet but persistent. It is the murmur of the lattice beginning to shimmer.
