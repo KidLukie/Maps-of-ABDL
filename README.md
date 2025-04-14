@@ -23,16 +23,16 @@ Kindredly,
 
 
 # CONTENTS
-1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
-2. [A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-3. [Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#identity-erotics-)
-4. [Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#meaning-making-praxis-)
-5. [Neosexuality: The Dispersion of Sexual Fragments](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#neosexuality-the-dispersion-of-sexual-fragments)
-6. [Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#social-rebellion)
-7. [Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#transpersonal-ecopsychology-regressing-or-reconnecting)
+1. [Introduction](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#introduction-)
+2. [A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
+3. [Identity Erotics](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#identity-erotics-)
+4. [Meaning-Making Praxis](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#meaning-making-praxis-)
+5. [Neosexuality: The Dispersion of Sexual Fragments](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#neosexuality-the-dispersion-of-sexual-fragments)
+6. [Social Rebellion](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#social-rebellion)
+7. [Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#transpersonal-ecopsychology-regressing-or-reconnecting)
 8. [Cradled in Paradox: A Metamodern Reflection on ABDL](https://github.com/KidLukie/Maps-of-ABDL/tree/main?tab=readme-ov-file#cradled-in-paradox-a-metamodern-reflection-on-abdl-)
-9. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
-10. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
+9. [Explanatory Notes](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#explanatory-notes-)
+10. [Further Reading and References](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#further-reading-and-references-)
 
 # INTRODUCTION <br/>
 We all experience a sense of lack—a feeling that something is missing, incomplete, or wrong within us. This existential void drives our behaviors and desires, motivating us to strive for fulfillment. Yet, no matter what we achieve, that sense of incompleteness lingers.
