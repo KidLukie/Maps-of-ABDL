@@ -199,7 +199,7 @@ In every culture, there are ritual expressions of transgression. Fetishes like A
 
 From my perspective, ABDL is not reducible to pathology or kink. It is poetic transgression—a symbolic act of metamodern intimacy, performed at the intersection of shame and care, absurdity and grace. Even the strangest rituals may carry the deepest truths about what it means to be held, to regress, and to remember. ABDL rituals, especially in safe and conscious settings, access that same territory. It becomes not a kink, but a method of liminal re-entry into the original self. Here, we confront the truth: you cannot become whole by adding layers; to integrate the Self you must first undo, unbecome, and regress. 
 
-A soul, fragmented by performance, culture, trauma, and time, seeks to undo itself—not to vanish, but to remember what it once was before language, shame, and masks.  Through the ritual of regression—whether through diapers or other symbolic re-embodiment—it returns us to the centre of the spiral, an archaelogical dreaming of discovery. There, in the strange nursery of the Self, it finds not perversion, but purity. A raw, unfiltered *being of becoming*.
+A soul, fragmented by performance, culture, trauma, and time, seeks to undo itself—not to vanish, but to remember what it once was before language, shame, and masks. Through the ritual of regression—whether through diapers or other symbolic re-embodiment—it returns us to the centre of the spiral, a place where, in our archaelogical dream of discovery, we unearth the Cradle of the Self. And in this strange nursery, we find not perversion, but purity. A raw, unfiltered *being of becoming*.
 
 
 # EXPLANATORY NOTES <br/>
