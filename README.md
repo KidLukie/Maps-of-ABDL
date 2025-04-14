@@ -30,7 +30,7 @@ Kindredly,
 5. [Neosexuality: The Dispersion of Sexual Fragments](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#neosexuality-the-dispersion-of-sexual-fragments)
 6. [Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#social-rebellion)
 7. [Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#transpersonal-ecopsychology-regressing-or-reconnecting)
-8. [Cradled in Paradox: A Metamodern Reflection on ABDL.]
+8. [Cradled in Paradox: A Metamodern Reflection on ABDL](https://github.com/KidLukie/Maps-of-ABDL?tab=readme-ov-file#cradled-in-paradox-a-metamodern-reflection-on-abdl-)
 9. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
 10. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
 
